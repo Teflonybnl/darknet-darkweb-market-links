@@ -8,7 +8,7 @@ Here are best darkweb market links
 GOT TO THE LINKS BELOW, YOU WILL FIND EACH MARKETS LINKS, ALL OF THEIR LINKS ARE LISTED IN EACH OF THOSE LINKS.
 |Market|Link|
 |----|----|
-|Marvel Market|[https://thedarknet.link/wethenorth-darknet-market-links/](https://thedarknet.link/wethenorth-darknet-market-links/)
+|Marvel Market|[https://thedarknet.link/marvel-market-links/](https://thedarknet.link/marvel-market-links/)
 |WeTheNorth Market|[https://thedarknet.link/wethenorth-darknet-market-links/](https://thedarknet.link/wethenorth-darknet-market-links/)
 |World Market|[https://thedarknet.link/world-market-link/](https://thedarknet.link/world-market-link/)
 |Cannazon Market|[https://thedarknet.link/cannazon-market-link/](https://thedarknet.link/cannazon-market-link/)
