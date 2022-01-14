@@ -13,4 +13,4 @@ GOT TO THE LINKS BELOW, YOU WILL FIND EACH MARKETS LINKS, ALL OF THEIR LINKS ARE
 |World Market|[https://thedarknet.link/world-market-link/](https://thedarknet.link/world-market-link/)
 |Cannazon Market|[https://thedarknet.link/cannazon-market-link/](https://thedarknet.link/cannazon-market-link/)
 |Dark0de Market|[https://thedarknet.link/darkode-market-link/](https://thedarknet.link/darkode-market-link/)
-|Dark0de Market|[https://thedarknet.link/tor2door-market-link/](https://thedarknet.link/tor2door-market-link/)
+|Tor2Door Market|[https://thedarknet.link/tor2door-market-link/](https://thedarknet.link/tor2door-market-link/)
